@@ -1,1 +1,1 @@
-Jannek Link's Homepage
+Jannek Link's Website
